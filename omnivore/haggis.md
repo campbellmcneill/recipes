@@ -33,3 +33,8 @@ Spoon the mixture into the sheep's stomach, so it's just over half full. Sew up 
 Put the haggis in a pan of boiling water (enough to cover it) and cook for 3 hours without a lid. Keep adding more water to keep it covered.
 
 To serve, cut open the haggis and spoon out the filling. Serve with neeps (mashed swede or turnip) and tatties (mashed potatoes).
+
+
+
+## Citation
+http://www.bbc.co.uk/food/recipes/haggis_66072
